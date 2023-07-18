@@ -10,5 +10,4 @@ We'll also discuss common obstacles to resilience, such as fear, self-doubt, and
 
 So, let's dive in and begin our journey towards greater resilience and personal growth!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
