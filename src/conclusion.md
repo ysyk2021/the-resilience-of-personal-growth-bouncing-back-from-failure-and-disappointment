@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 11: Conclusion
-======================
-
 In this book, we have explored the importance of resilience in personal growth and provided strategies for building resilience. We have discussed different perspectives and approaches to resilience, identified key elements that affect resilience, and explored the relationship between resilience and personal growth.
 
 Recap of Key Points and Strategies
