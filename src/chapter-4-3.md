@@ -56,4 +56,4 @@ Throughout the process of creating and executing a plan of action, cultivating a
 Conclusion
 ----------
 
-Creating a plan of action is a vital step in bouncing back from failure and disappointment. By assessing the situation, defining goals, breaking them down into actionable steps, identifying resources and support, developing strategies, implementing the plan, learning from setbacks, celebrating successes, reviewing and revising, and cultivating a resilience mindset, individuals can effectively navigate through challenges and move towards personal growth and resilience. In the next chapter, we will explore techniques for maintaining resilience during times of adversity.
+Creating a plan of action is a vital step in bouncing back from failure and disappointment. By assessing the situation, defining goals, breaking them down into actionable steps, identifying resources and support, developing strategies, implementing the plan, learning from setbacks, celebrating successes, reviewing and revising, and cultivating a resilience mindset, individuals can effectively navigate through challenges and move towards personal growth and resilience.

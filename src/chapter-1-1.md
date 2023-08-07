@@ -43,4 +43,4 @@ While some individuals may naturally possess resilience, it is a skill that can 
 
 **Conclusion**
 
-Resilience is a vital attribute that directly contributes to personal growth. By embracing resilience, individuals can transform failure and disappointment into stepping stones towards success. Through self-awareness, positive thinking, adaptability, and problem-solving skills, individuals can cultivate resilience and navigate life's challenges with strength and determination. In the next chapter, we will delve into practical strategies for developing resilience in everyday life.
+Resilience is a vital attribute that directly contributes to personal growth. By embracing resilience, individuals can transform failure and disappointment into stepping stones towards success. Through self-awareness, positive thinking, adaptability, and problem-solving skills, individuals can cultivate resilience and navigate life's challenges with strength and determination.

@@ -51,4 +51,4 @@ The intersectional perspective on resilience recognizes that individuals' experi
 Conclusion
 ----------
 
-Different perspectives and approaches to resilience offer a multifaceted understanding of personal growth and bouncing back from failure and disappointment. By considering psychological, behavioral, social, cultural, philosophical, holistic, developmental, neurobiological, intersectional perspectives, individuals can develop a comprehensive toolkit for building resilience. In the next chapter, we will explore practical techniques for maintaining resilience during times of adversity.
+Different perspectives and approaches to resilience offer a multifaceted understanding of personal growth and bouncing back from failure and disappointment. By considering psychological, behavioral, social, cultural, philosophical, holistic, developmental, neurobiological, intersectional perspectives, individuals can develop a comprehensive toolkit for building resilience.

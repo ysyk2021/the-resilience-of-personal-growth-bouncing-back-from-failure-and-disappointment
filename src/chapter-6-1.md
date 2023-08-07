@@ -56,4 +56,4 @@ Failure can be a valuable teacher if we approach it with a learning mindset. We 
 Conclusion
 ----------
 
-Coping with failure and disappointment is an essential aspect of building personal resilience. By acknowledging and accepting emotions, practicing self-reflection, reframing perspectives, embracing a growth mindset, developing resilience strategies, practicing self-care, seeking social support, setting realistic goals, cultivating gratitude and optimism, and learning from failure, individuals can navigate through setbacks and bounce back stronger than ever. In the next chapter, we will explore techniques for seeking support and guidance during times of adversity.
+Coping with failure and disappointment is an essential aspect of building personal resilience. By acknowledging and accepting emotions, practicing self-reflection, reframing perspectives, embracing a growth mindset, developing resilience strategies, practicing self-care, seeking social support, setting realistic goals, cultivating gratitude and optimism, and learning from failure, individuals can navigate through setbacks and bounce back stronger than ever.

@@ -28,4 +28,3 @@ Conclusion
 
 Sustaining resilience efforts requires ongoing effort and adaptation to changing life circumstances. By recognizing the need for adaptation, maintaining a growth mindset, practicing flexibility, and seeking support from others, individuals can continue to build resilience and achieve long-term success in both personal and professional contexts. By applying these recommendations, individuals can overcome challenges and setbacks and maintain a sense of purpose and motivation in their personal growth and development.
 
-

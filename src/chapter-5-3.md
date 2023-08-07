@@ -52,4 +52,4 @@ Gratitude is another effective way to reframe negative thoughts and perceptions.
 Conclusion
 ----------
 
-Reframing negative thoughts and perceptions is a transformative practice for personal growth. By challenging negative thought patterns, finding the silver lining, practicing self-compassion, utilizing positive affirmations, seeking support, and cultivating gratitude, we can reshape our mindset and overcome obstacles with resilience. In the next chapter, we will explore strategies for maintaining resilience during challenging times and nurturing personal growth consistently.
+Reframing negative thoughts and perceptions is a transformative practice for personal growth. By challenging negative thought patterns, finding the silver lining, practicing self-compassion, utilizing positive affirmations, seeking support, and cultivating gratitude, we can reshape our mindset and overcome obstacles with resilience.

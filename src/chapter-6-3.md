@@ -51,4 +51,4 @@ We emphasize the importance of nurturing relationships for long-term support and
 Conclusion
 ----------
 
-Seeking support and guidance is a crucial aspect of building personal resilience. By understanding the value of support, identifying trusted individuals, opening up, building a supportive network, seeking professional guidance, utilizing resources and tools, embracing technology, overcoming barriers, and nurturing relationships, individuals can access the assistance needed to navigate through failure and disappointment. In the next chapter, we will explore techniques for developing strategies to build resilience.
+Seeking support and guidance is a crucial aspect of building personal resilience. By understanding the value of support, identifying trusted individuals, opening up, building a supportive network, seeking professional guidance, utilizing resources and tools, embracing technology, overcoming barriers, and nurturing relationships, individuals can access the assistance needed to navigate through failure and disappointment.

@@ -63,4 +63,3 @@ Conclusion
 
 In conclusion, maintaining self-care and well-being is essential for developing resilience. Techniques for prioritizing physical and mental health include exercising regularly, practicing mindfulness, getting adequate sleep, eating a balanced diet, and seeking support and guidance. By incorporating these techniques into daily routines, individuals can promote self-care and well-being and develop resilience.
 
-
