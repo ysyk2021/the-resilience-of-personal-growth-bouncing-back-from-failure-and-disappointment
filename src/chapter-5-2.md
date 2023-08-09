@@ -51,4 +51,4 @@ Learning and improvement can be accelerated through collaboration and learning f
 Conclusion
 ----------
 
-Embracing opportunities for learning and improvement is a fundamental aspect of personal growth and resilience. By cultivating curiosity, embracing challenges, adopting a growth mindset, seeking feedback, continuously improving, stepping out of your comfort zone, learning from setbacks, practicing reflection, and embracing collaboration, you can unlock your potential and thrive in the face of adversity. In the final chapter, we will summarize the key lessons learned throughout this book and provide guidance on how to continue your journey towards resilience and personal growth.
+Embracing opportunities for learning and improvement is a fundamental aspect of personal growth and resilience. By cultivating curiosity, embracing challenges, adopting a growth mindset, seeking feedback, continuously improving, stepping out of your comfort zone, learning from setbacks, practicing reflection, and embracing collaboration, you can unlock your potential and thrive in the face of adversity.

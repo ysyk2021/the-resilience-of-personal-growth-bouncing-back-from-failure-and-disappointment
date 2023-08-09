@@ -51,4 +51,4 @@ Amidst transitions, it's important to acknowledge and celebrate your progress an
 Conclusion
 ----------
 
-Transitions and change present opportunities for personal growth and resilience. By accepting change, cultivating a growth mindset, practicing self-care, developing flexibility and adaptability, setting realistic goals, seeking support, embracing uncertainty, practicing mindfulness, and celebrating progress, individuals can navigate transitions with grace and embrace personal growth. In the final chapter, we will summarize the key takeaways from this book and provide guidance on continuing the journey of resilience and personal growth.
+Transitions and change present opportunities for personal growth and resilience. By accepting change, cultivating a growth mindset, practicing self-care, developing flexibility and adaptability, setting realistic goals, seeking support, embracing uncertainty, practicing mindfulness, and celebrating progress, individuals can navigate transitions with grace and embrace personal growth.
