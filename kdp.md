@@ -38,6 +38,3 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 18. Success mindset
 19. Challenges
 20. Building resilience
-
-These keywords should help readers find the book on Amazon and discover similar titles as well.
-
