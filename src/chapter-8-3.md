@@ -1,7 +1,6 @@
 Creating Healthy Habits and Routines
 ================================================
 
-**Introduction**
 
 In this chapter, we will explore the importance of creating healthy habits and routines in the context of personal growth and bouncing back from failure and disappointment. Habits and routines play a significant role in shaping our behaviors, mindset, and overall well-being. By establishing positive habits and routines, individuals can cultivate resilience, enhance their personal development, and effectively navigate challenges. This chapter will provide guidance on how to create and maintain healthy habits and routines that support our resilience-building journey.
 
