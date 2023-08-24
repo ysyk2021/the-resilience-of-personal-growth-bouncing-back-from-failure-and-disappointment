@@ -1,5 +1,3 @@
-Chapter 5: Cultivating a Growth Mindset
-=======================================
 
 In this chapter, we will discuss the importance of cultivating a growth mindset as a strategy for building resilience. We will explore techniques for developing a growth mindset and embracing opportunities for learning and improvement while reframing negative thoughts and perceptions.
 

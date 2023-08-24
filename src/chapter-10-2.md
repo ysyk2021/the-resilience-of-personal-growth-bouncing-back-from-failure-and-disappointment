@@ -1,5 +1,3 @@
-Continuous Learning and Improvement
-==============================================================================
 
 In this chapter, we will discuss the importance of continuous learning and improvement in sustaining resilience efforts over the long-term. We will explore how to identify areas for growth and development, seek out new opportunities for learning, and apply newly acquired knowledge and skills.
 

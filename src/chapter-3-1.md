@@ -1,5 +1,3 @@
-Techniques for Understanding the Psychology of Resilience
-================================================================================================================
 
 In this chapter, we will discuss techniques for understanding the psychology of resilience. We will explore how to identify internal and external resources that contribute to resilience, as well as strategies for developing cognitive flexibility, emotional regulation, and problem-solving skills.
 

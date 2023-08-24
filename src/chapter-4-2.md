@@ -1,4 +1,3 @@
-# Establishing Clear Objectives and Priorities
 
 In order to build resilience and effectively bounce back from failure and disappointment, it is important to establish clear objectives and priorities. In this chapter, we will explore the significance of setting goals, clarifying priorities, and how they contribute to personal growth and resilience.
 

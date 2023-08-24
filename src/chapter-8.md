@@ -1,5 +1,3 @@
-Chapter 8: Maintaining Self-Care and Well-being
-===============================================
 
 In this chapter, we will discuss the importance of maintaining self-care and well-being when bouncing back from failure and disappointment. We will explore techniques for maintaining self-care and well-being, prioritizing physical and mental health, and creating healthy habits and routines.
 

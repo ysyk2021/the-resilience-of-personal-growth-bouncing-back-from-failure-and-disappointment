@@ -1,5 +1,3 @@
-Chapter 4: Developing Strategies for Building Resilience
-========================================================
 
 In this chapter, we will discuss techniques for developing strategies for building resilience. We will explore the importance of establishing clear objectives and priorities as well as creating a plan of action to achieve those goals.
 

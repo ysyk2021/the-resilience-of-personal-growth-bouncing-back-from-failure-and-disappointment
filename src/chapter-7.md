@@ -1,4 +1,3 @@
-# Chapter 7: Navigating Transitions and Change
 
 ## Techniques for Navigating Transitions and Change
 

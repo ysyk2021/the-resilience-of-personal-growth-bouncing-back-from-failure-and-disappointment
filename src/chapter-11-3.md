@@ -1,5 +1,3 @@
-Future Directions for Research and Practice
-===================================================================
 
 The topic of resilience and personal growth is a rapidly growing area of research and practice. In this final chapter, we'll explore potential future directions for research and practice in the field of resilience and personal growth.
 

@@ -1,5 +1,3 @@
-Reframing Negative Thoughts and Perceptions
-=======================================================
 
 In this chapter, we delve into the powerful technique of reframing negative thoughts and perceptions to foster personal growth. By challenging and reshaping our negative mindset, we can overcome obstacles, embrace opportunities, and cultivate resilience.
 

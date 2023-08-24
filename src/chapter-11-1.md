@@ -1,5 +1,3 @@
-Recap of Key Points and Strategies
-==========================================================
 
 In this book, we have explored the importance of resilience in personal growth and provided strategies for building resilience. In this final chapter, we will recap the key points and strategies discussed throughout the book.
 

@@ -1,5 +1,3 @@
-Chapter 6: Coping with Failure and Disappointment
-=================================================
 
 Failure and disappointment are inevitable parts of life, but they can be difficult to cope with. In this chapter, we will explore techniques for coping with failure and disappointment, including processing emotions and reactions and seeking support and guidance.
 

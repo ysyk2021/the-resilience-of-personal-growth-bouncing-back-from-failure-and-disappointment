@@ -1,5 +1,3 @@
-Chapter 10: Sustaining Resilience Efforts
-=========================================
 
 Developing resilience is an ongoing process that requires sustained effort over time. In this chapter, we will explore techniques for sustaining resilience efforts and adapting to changes in life circumstances.
 
