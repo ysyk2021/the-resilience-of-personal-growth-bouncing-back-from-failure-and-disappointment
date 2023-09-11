@@ -1,5 +1,4 @@
-Chapter: Continuous Learning and Improvement
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the importance of continuous learning and improvement in building resilience and bouncing back from failure and disappointment. We delve into the mindset and strategies that foster a commitment to lifelong learning, enabling personal growth even in the face of challenges.
 
